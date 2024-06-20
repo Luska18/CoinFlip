@@ -1,2 +1,2 @@
 # CoinFlip
-Só Deus sabe o que aconteceu aqui
+Rapaiz, nem te falo
